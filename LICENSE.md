@@ -1,4 +1,4 @@
-# 
+# أصلي meme coin sniper bot قوالب لـ Mac OS | جديد meme coin sniper bot قوالب لـ PC Windows. مع مستمعي الأحداث و تلاعب بـ nonce — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
